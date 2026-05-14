@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CorelDRAW for macOS preset with elite Preset for CorelDRAW for macOS - batch processing and export to SVG. Featuring batch processing and export to SVG, it's the
 
 
 
